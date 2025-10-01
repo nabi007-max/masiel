@@ -1,3 +1,3 @@
 # masiel
 varios website
-ceado por iban Mamani
+ceado por iban Mamani Quispe
